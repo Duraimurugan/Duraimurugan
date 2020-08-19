@@ -14,4 +14,4 @@ Talk to me about my expertise on
 ## 📫 Contact Me
 - 👥 LinkedIn https://www.linkedin.com/in/duraimurugan-rajendran-22675316/
 - 📫 Mail me at: durai.catch.me@gmail.com
-- 🐦 Twitter: **@tweet2durai**
+- 🐦 Twitter: https://twitter.com/tweet2durai
